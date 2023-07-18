@@ -12,7 +12,7 @@ always ready for developing & creating things by solving problems.
 🍕 **LAST HACKATHON CREDENTIALS**- Best Project on Hackathon Theme in Hack the Space, 2nd runner up in AMU Battlegrounds and selected in top 10 projects in Badger Hacks
                       
 📫 **Connect with me:**
-    https://www.linkedin.com/in/kushal-sharma-0335b41aa/ uie19bme1081@gmail.com
+     uie19bme1081@gmail.com
 
 👯 I’m looking to collaborate in Hackathons, projects, startups and any other
 real time projects.
